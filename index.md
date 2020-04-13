@@ -11,4 +11,4 @@ Mental health includes our emotional, psychological, and social well-being. It a
 It also helps determine how we handle stress, relate to others, and make choices. 
 Mental health is important at every stage of life, from childhood and adolescence through adulthood.
 
-But why mental health problems are so common? And can you and how you can prevent it?
+But why mental health problems are so common?
